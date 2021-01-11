@@ -22,19 +22,14 @@ Description.
 ## Lyrics
 
 ```
-wreckin rough draughts
-as a morbid turnaround aye
-first blink of an eye 
-and bet you gonna die aaargh
+wreckin rough draughts as a morbid turnaround aye
+first blink of an eye and bet you gonna die aaargh
 
-chains on my hands
-announcing my demise
-pulling on'em short
-finna gonna ride ya
+chains on my hands announcing my demise
+pulling on'em short finna gonna ride ya
 
 finna gonna ride the thermals up
-finna burn the rust eternal 
-and that's what's up - ey
+finna burn the rust eternal and that's what's up - ey
 up your mind into the brain's synapse
 synapses made my way to the top
 
