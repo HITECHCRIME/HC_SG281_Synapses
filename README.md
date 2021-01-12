@@ -33,6 +33,9 @@ finna burn the rust eternal and that's what's up - ey
 up your mind into the brain's synapse
 synapses made my way to the top
 
+i worked for years 
+spinning round the clock
+
 
 will of the feral's ????????????
 
